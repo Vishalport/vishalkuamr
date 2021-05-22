@@ -1,3 +1,5 @@
+[![trophy](https://github-profile-trophy.vercel.app/vishalkuamr=ryo-ma)](https://github.com/ryo-ma/github-profile-trophy)
+
 <h1 align="center">Hi 👋, I'm vishalkuamr</h1>
 <h3 align="center">like a developer from India</h3>
 
