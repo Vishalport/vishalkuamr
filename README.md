@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **coding**
 
-- 📫 How to reach me **vkvishal.55.mk@gmail.com**
+- 📫 you can meeet me **vkvishal.55.mk@gmail.com**
 
 - ⚡ Fun fact **music and watch web-series online**
 
